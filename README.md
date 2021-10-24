@@ -99,3 +99,5 @@ Recovery time is longer (just like for a general tear). Some rehab is required.
 Physiotherapy, pelvic floor muscle exercises. Should improve blood supply to
 area to assist with healing.
 
+Vacuum can assist the delivery.
+
